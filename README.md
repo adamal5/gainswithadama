@@ -1,1 +1,1 @@
-# gainswithadama
+# Gains with Adama (GwA)
